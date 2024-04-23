@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tutuzeira1021
+- 👀 I’m interested in Star Wars
+- 🌱 I’m currently learning programming
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am only 14 hahaha
